@@ -3,4 +3,6 @@ Home: https://pabiodieselsupply.com/ , ebay: https://www.ebay.com/usr/jmazecorp2
 
 Channel: https://www.youtube.com/user/joemaze
 
+Forum Library: https://pabiodieselsupply.com/forum-library
+
 ark: https://web.archive.org/web/*/www.centrifugefordummies.com
