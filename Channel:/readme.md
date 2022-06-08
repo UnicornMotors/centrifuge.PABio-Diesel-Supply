@@ -5,3 +5,5 @@ Home: https://www.youtube.com/user/joemaze
 [We do oil video.](https://youtu.be/vPScMyXYPU0)
 
 [Explanation of oil centrifuge RPM vs. Flow rate](https://youtu.be/Ta8sRIqoyvs)
+
+[Ultimate Force Oil Centrifuge Comparison](https://youtu.be/BWxf5uFux50)
